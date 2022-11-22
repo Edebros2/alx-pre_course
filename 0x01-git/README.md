@@ -1,1 +1,1 @@
-My second readme
+I cannot kill myself
